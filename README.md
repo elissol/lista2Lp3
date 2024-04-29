@@ -1,1 +1,0 @@
-exercicio médio
